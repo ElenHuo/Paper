@@ -1,1 +1,1 @@
-There are two paper under view, at IRC 2020 and ICCAR 2020 each.
+There are two papers under view, at IRC 2020 and ICCAR 2020 each.
